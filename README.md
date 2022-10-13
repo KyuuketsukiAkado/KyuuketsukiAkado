@@ -1,2 +1,2 @@
-![изображение](https://user-images.githubusercontent.com/110248773/195661648-e77c2da5-86c7-44d5-af5c-de0dd9d4b485.png)
+![изображение](https://user-images.githubusercontent.com/110248773/195662051-00286f9b-30a2-4705-b3ec-61825da19a5f.png)
 
